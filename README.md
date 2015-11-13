@@ -1,6 +1,12 @@
 # collaborative_bibliotherapy_quotation_series
 I practice bibliotherapy daily. You should too. O.o 
 
+“Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.” ― Lao Tzu
+
+“A certain something, he felt, had managed to work its way in through a tiny opening and was trying to fill a blank space inside him. The void was not one that she had made. It had always been there inside him. She had merely managed to shine a special light on it.” - Haruki Murakami 
+
+“Have you ever been in love? Horrible isn't it? It makes you so vulnerable. It opens your chest and it opens up your heart and it means that someone can get inside you and mess you up.” - Neil Gaiman
+
 “The words you speak become the house you live in.”  – Hafiz
 
 "We need people in our lives with whom we can be as open as possible. To have real conversations with people may seem like such a simple, obvious suggestion, but it involves courage and risk."- Thomas Moore
