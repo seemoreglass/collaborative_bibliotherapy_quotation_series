@@ -1,6 +1,13 @@
 # collaborative_bibliotherapy_quotation_series
 I practice bibliotherapy daily. You should too. O.o 
 
+
+"Sometimes you dance just to keep from dying."- James Kaplan
+
+"Someone once said that the trouble with most of us is that we’d rather be ruined by praise than saved by criticism."-source unknown
+
+“Love never dies a natural death. It dies because we don't know how to replenish its source. It dies of blindness and errors and betrayals. It dies of illness and wounds; it dies of weariness, of witherings, of tarnishings.” ― Anaïs Nin 
+
 “Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.” ― Lao Tzu
 
 “A certain something, he felt, had managed to work its way in through a tiny opening and was trying to fill a blank space inside him. The void was not one that she had made. It had always been there inside him. She had merely managed to shine a special light on it.” - Haruki Murakami 
