@@ -1,6 +1,9 @@
 # collaborative_bibliotherapy_quotation_series
 I practice bibliotherapy daily. You should too. O.o 
 
+“People hate as they love, unreasonably.” ― William Makepeace Thackeray 
+
+“We must be willing to let go of the life we planned so as to have the life that is waiting for us.” ― Joseph Campbell 
 
 "Sometimes you dance just to keep from dying."- James Kaplan
 
