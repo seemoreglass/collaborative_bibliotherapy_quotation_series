@@ -1,6 +1,20 @@
 # collaborative_bibliotherapy_quotation_series
 I practice bibliotherapy daily. You should too. O.o 
 
+“The real loneliness is living among all these kind people who only ask one to pretend!” 
+― Edith Wharton, The Age of Innocence 
+
+ “Perhaps only people who are capable of real togetherness have that look of being alone in the universe. The others have a certain stickiness, they stick to the mass.” 
+― D.H. Lawrence, Lady Chatterley's Lover
+ 
+“Nobody likes being alone that much. I don't go out of my way to make friends, that's all. It just leads to disappointment.”
+― Haruki Murakami, Norwegian Wood 
+
+“In keeping silent about evil, in burying it so deep within us that no sign of it appears on the surface, we are implanting it, and it will rise up a thousand fold in the future. When we neither punish nor reproach evildoers, we are not simply protecting their trivial old age, we are thereby ripping the foundations of justice from beneath new generations.” 
+― Aleksandr Solzhenitsyn, The Gulag Archipelago 1918-1956 
+
+“Justice will not be served until those who are unaffected are as outraged as those who are.” ― Benjamin Franklin 
+
 “People hate as they love, unreasonably.” ― William Makepeace Thackeray 
 
 “We must be willing to let go of the life we planned so as to have the life that is waiting for us.” ― Joseph Campbell 
