@@ -1,6 +1,10 @@
 # collaborative_bibliotherapy_quotation_series
 I practice bibliotherapy daily. You should too. O.o 
 
+Being pretentious is just a sort-of clever way of saying, "I hate myself."- Source unknown
+
+"No great love ever really ends. We can shoot it with a gun or stick it in the back of the darkest closet of our hearts, but it’s clever; it knows how to survive. It can find its way out and shock us by reappearing when we were so damn sure it was dead or at least safely hidden beneath piles of other things." - Jonathan Carroll AFTER SILENCE
+
 “The real loneliness is living among all these kind people who only ask one to pretend!” 
 ― Edith Wharton, The Age of Innocence 
 
