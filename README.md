@@ -1,6 +1,12 @@
 # collaborative_bibliotherapy_quotation_series
 I practice bibliotherapy daily. You should too. O.o 
 
+“Of all forms of caution, caution in love is perhaps the most fatal to true happiness.” ― Bertrand Russell, The Conquest of Happiness 
+
+“Happiness in intelligent people is the rarest thing I know.” ― Ernest Hemingway, The Garden of Eden 
+ 
+“It is there, where they burn books, that eventually they burn people.” ― Heinrich Heine 
+
 Being pretentious is just a sort-of clever way of saying, "I hate myself."- Source unknown
 
 "No great love ever really ends. We can shoot it with a gun or stick it in the back of the darkest closet of our hearts, but it’s clever; it knows how to survive. It can find its way out and shock us by reappearing when we were so damn sure it was dead or at least safely hidden beneath piles of other things." - Jonathan Carroll AFTER SILENCE
